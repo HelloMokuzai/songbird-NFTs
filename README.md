@@ -2,7 +2,7 @@
 **NFT's on the Songbird Blockchain**
 
 A timeless collection of digital drip living on the blockchain, created by the pseudonymous artist known as MKZI⚡️. 
-888 Verified Inner Artist ✅
+(888 Verified Inner Artist)
 
 Visit: https://hellomokuzai.github.io/songbird-NFTs/
 
